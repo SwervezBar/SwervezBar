@@ -15,7 +15,7 @@ usually on 18+ but will sit in safe also
 - very anxious, don't expect fast responses
 - always use she/her on me unless ik you *(only friends can use neos)*
 - please call me **Misfire**!!! thank you!!!!
-so sorry if i don't respond right away bc i'm usually scrolling on my phone or drawing w PT up lol
+# so sorry if i don't respond right away bc i'm usually scrolling on my phone or drawing w PT up lol
 
 DNI:
 - -13, zionists/neutrals, proship/comship/anti-anti, basic DNI, selfship w swerve (hide me PLEASE)
