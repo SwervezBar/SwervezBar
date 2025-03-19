@@ -10,11 +10,11 @@ usually on 18+ but will sit in safe also!!!
 
 ## About me
 
+- call me Misfire, Geno or Cyc/Cyclonus
 - neurodivergent girl who's full of anxiety
 - nonbinary, asexual, unlabeled
 - very anxious, don't expect fast responses
 - always use she/her on me unless ik you *(only friends can use neos)*
-- please call me **Misfire**!!! thank you!!!!
 > so sorry if i don't respond right away bc i'm usually scrolling on my phone or drawing w PT up lol
 
 ## DNI:
