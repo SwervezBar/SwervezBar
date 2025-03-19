@@ -1,7 +1,7 @@
 ## 「SwervezBar」
 
 hello ponytown people stalking me,,
-usually on 18+ but will sit in safe also
+!; usually on 18+ but will sit in safe also!!!
 
 - i'm mostly sitting by myself, int w me pls! i love talking to ppl when in the mood
 - c+h w me!!!
