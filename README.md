@@ -12,10 +12,10 @@ usually on 18+ but will sit in safe also!!!
 
 - call me Misfire, Geno or Cyc/Cyclonus
 - nonbinary, asexual, unlabeled
-- i'm a nonsharing selfshipper who yumes with **Swerve** <3
+- i'm a nonsharing selfshipper who yumes with **Swerve** (IDW) <3
 - very anxious, don't expect fast responses
 - always use she/her on me unless ik you ⋆ (only friends can use neos)
 > so sorry if i don't respond right away bc i'm usually scrolling on my phone or drawing w PT up lol,,,
 
 ## DNI:
-- -13, zionists/neutrals, proship/comship/anti-anti, basic DNI, **selfship w swerve** (hide me PLEASE)
+- -13, zionists/neutrals, proship/comship/anti-anti, basic DNI, **selfship w Swerve** (hide me PLEASE)
