@@ -10,7 +10,7 @@ hello ponytown people stalking me...
 ## About me
 
 - call me Misfire, Geno or Cyc/Cyclonus
-- nonbinary, asexual, unlabeled
+- nonbinary asexual lesbian
 - i'm a nonsharing selfshipper who yumes with **Swerve** (IDW) <3
 - very anxious, don't expect fast responses
 - always use she/her on me unless ik you ⋆ (only friends can use neos)
